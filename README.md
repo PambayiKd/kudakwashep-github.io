@@ -1,2 +1,0 @@
-# kudakwashep@github.io
- personalaccount
